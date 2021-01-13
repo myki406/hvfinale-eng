@@ -1,2 +1,2 @@
 # hvfinale-hun
-https://highwayviolence.hu/
+https://highwayviolence.com/
